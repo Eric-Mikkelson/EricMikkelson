@@ -1,3 +1,3 @@
 # Eric Mikkelson
-Business Student
+Business Student at the
 University of Utah
